@@ -1,4 +1,3 @@
-![Rules](https://vedatgsx-afk.github.io/mordhau-motdg
+<a id="Join Discord">https://discord.gg/5BDZkbEZkG</>
 
-<a id="🎮 JOIN DISCORD 🎮">https://discord.gg/5BDZkbEZkG</>
-``
+![Rules](https://vedatgsx-afk./mordhau-motd/rules.jpg
