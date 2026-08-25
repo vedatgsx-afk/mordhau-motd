@@ -18,4 +18,4 @@
 12. No Advertising Other Servers, Websites or Products.
 13. No Spam, Voice Spam or Excessive Lutebot Spam.
 
-Break The Rules = Punishment
+Created By Crowley
